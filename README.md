@@ -5,4 +5,4 @@
 
 📫email-addres:amirali.nicu@gmial.com📫
 
-⚔️SAO⚔️
+⚔️bye⚔️
