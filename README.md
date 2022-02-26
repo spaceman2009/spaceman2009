@@ -10,4 +10,4 @@
 ⚔️bye⚔️
 
 
-https://github.com/LafaDev/LafaDev/raw/output/github-contribution-grid-snake.svg
+![image](https://user-images.githubusercontent.com/96647171/155845222-1281f092-149d-4ada-b58f-9f9d416104e4.png)
