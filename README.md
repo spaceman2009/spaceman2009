@@ -1,7 +1,7 @@
 ### Hello , I am space man 
 
 
-🚀I am learning php,HTML,phyton,Dart and C++ 🚀
+🚀I am learning wordpress,phyton,C++ 🚀
 
 🗿I am living in Iran🗿
 
