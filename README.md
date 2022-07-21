@@ -7,7 +7,7 @@
 
 📫email-addres:amirali.nicu@gmial.com📫
 
-📰Website:niko-o.ir📰
+📰Website:http://niko-o.ir📰
 
 ⚔️bye⚔️
 
